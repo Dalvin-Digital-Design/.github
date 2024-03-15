@@ -17,7 +17,7 @@ Dalvin Digital Design is a creative studio passionate about crafting stunning di
 
 If you have any questions, suggestions, or just want to say hello, feel free to reach out to us:
 
-- Email: [contact@dalvindigitaldesign.com](mailto:support@dalvindigitaldesign.com)
+- Email: [supporrt@dalvindigitaldesign.com](mailto:support@dalvindigitaldesign.com)
 - Website: [www.dalvindigitaldesign.com](https://www.dalvindigitaldesign.com)
 - Twitter: [@DalvinDigital](https://twitter.com/DalvinDigital)
 - LinkedIn: [Dalvin Digital Design](https://www.linkedin.com/company/dalvindigital)
